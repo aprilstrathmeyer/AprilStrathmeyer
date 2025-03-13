@@ -1,2 +1,2 @@
 # April-Strathmeyer
-Diligent, sophisticated, charismatic, experience in more than 5 technical projects.
+Diligent, perfectionist data analyst with experience in technical projects in SQL, Tableau, Python in business  data analytics. Eager to excel knowledge and skills in Data analyzation.
