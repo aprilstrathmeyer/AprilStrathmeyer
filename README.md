@@ -9,4 +9,4 @@ I take delight reading scripture and being a part of the Christian faith
 My current goal is to learn to cook popular dishes from around the world
 I love to travel and go on adventures with my spouse.
 
-Feel free to message me on GITHUB 
+Feel free to message me through email aprilmagallanes76@gmail.com
